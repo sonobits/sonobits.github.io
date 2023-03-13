@@ -1,2 +1,2 @@
 # sonobits.github.io
-Sound &amp; Music Production
+Royalty Free Sound Effects &amp; Music | Bespoke Sound Design | Music Production
